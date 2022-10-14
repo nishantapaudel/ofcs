@@ -18,3 +18,5 @@ no tut
 no
 
 vibing
+
+one piece for life
